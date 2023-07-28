@@ -1,0 +1,2 @@
+- Attempting...to learn stuff
+- Am I succeeding? Most likely not. But hey, it's fun !
